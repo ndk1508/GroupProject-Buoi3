@@ -1,1 +1,1 @@
-Ghi chú nhóm - bắt đầu
+Đây là ghi chú của Khoa
